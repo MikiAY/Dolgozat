@@ -1,1 +1,1 @@
-# Dolgozat
+# Rőth Miklós
